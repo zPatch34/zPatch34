@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @zPatch34
+- 👀 I’m interested in 
+- The programing
+- 🌱 I’m currently learning Java, Python
+- 📫 How to reach me in Discord
+
+-----------------
+-                -
+- Discord:       -
+-KPatch_#7564    -
+-                -
+-----------------
